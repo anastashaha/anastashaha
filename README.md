@@ -1,6 +1,8 @@
 ## Hi! I'm Anastasha!
 
-👾 Coding and creating ... 
+👾 Coding and creating 
+
+[portfolio](https://anastasha.zip)
 
 ## Stats
 
